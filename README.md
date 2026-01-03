@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @munasey
-- 👀 I’m interested in privacy and security
-- 🌱 I’m currently learning cybersecurity basics
 - 💞️ I’m looking to collaborate on all projects
 - 📫 How to reach me https://www.linkedin.com/in/munasey/
 - 😄 Pronouns: She/Her
